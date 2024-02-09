@@ -1,0 +1,2 @@
+# Kadiri-oumarou
+Kariri
